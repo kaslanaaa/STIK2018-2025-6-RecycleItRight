@@ -1,0 +1,1 @@
+# STIK2018-2025-6-RecycleItRight
